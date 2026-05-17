@@ -1,10 +1,10 @@
-Profissional IVPN Plugin | servidores de alta velocidade + suporte P2P é o melhor IVPN plugin com servidores de alta velocidade e suporte P2P. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/ivpn-oz24/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
